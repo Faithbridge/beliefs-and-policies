@@ -1,4 +1,4 @@
-## Faithbridge Doctrine Guideline for Prospective Leaders & Staff Members
+# Faithbridge Doctrine Guideline for Prospective Leaders & Staff Members
 
 Prayerfully review the following doctrine guideline with the understanding that these beliefs and issues have varying levels of importance to each person. Faithbridge seeks team members who:
 
